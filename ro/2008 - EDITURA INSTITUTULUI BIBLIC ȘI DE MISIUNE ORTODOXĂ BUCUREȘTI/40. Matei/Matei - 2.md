@@ -47,4 +47,3 @@
 22. Și auzind că domnește Arhelau în Iudeea, în locul lui Irod, tatăl său, s-a temut să meargă acolo și, luând poruncă în vis, s-a dus în părțile Galileii.
 
 23. Și venind a locuit în orașul numit Nazaret, ca să se împlinească ceea ce s-a spus prin prooroci, că Nazarinean Se va chema.
-

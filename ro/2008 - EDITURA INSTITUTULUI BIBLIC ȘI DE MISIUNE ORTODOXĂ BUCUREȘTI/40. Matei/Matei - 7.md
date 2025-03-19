@@ -44,9 +44,7 @@
 
 21. Nu oricine Îmi zice: Doamne, Doamne!, va intra în Împărăția cerurilor, ci cel ce face voia Tatălui Meu Celui din ceruri.
 
-22. Mulți Îmi vor zice în ziua aceea: Doamne, Doamne, au nu în numele Tău
-
-am proorocit și nu în numele Tău am scos demoni și nu în numele Tău minuni multe am făcut?
+22. Mulți Îmi vor zice în ziua aceea: Doamne, Doamne, au nu în numele Tău am proorocit și nu în numele Tău am scos demoni și nu în numele Tău minuni multe am făcut?
 
 23. Și atunci voi mărturisi lor: Niciodată nu v-am cunoscut pe voi. Depărtați-vă de la Mine, cei ce lucrați fărădelegea.
 
