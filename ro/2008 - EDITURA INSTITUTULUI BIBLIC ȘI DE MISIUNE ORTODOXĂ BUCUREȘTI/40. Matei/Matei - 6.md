@@ -2,9 +2,7 @@
 
 <!-- CAP. 6 Despre milostenie, rugăciune și post. Să nu ne străduim numai după cele pământești. -->
 
-1. Luați aminte ca faptele dreptății voastre să nu le faceți înaintea oamenilor, ca să fiți văzuți de ei; altfel nu
-
-veți avea plată de la Tatăl vostru Cel din ceruri. Štofis 1619
+1. Luați aminte ca faptele dreptății voastre să nu le faceți înaintea oamenilor, ca să fiți văzuți de ei; altfel nu veți avea plată de la Tatăl vostru Cel din ceruri. Štofis 1619
 
 2. Deci, când faci milostenie, nu trâmbița înaintea ta, cum fac fățarnicii în sinagogi și pe ulițe, ca să fie slăviți de oameni; adevărat grăiesc vouă: și-au luat plata lor.
 
