@@ -8,7 +8,7 @@
 
 3. Și înfățișarea lui era ca fulgerul, și îmbrăcămintea lui, albă ca zăpada.
 
-4. Și de frica lui s-au cutremurat cei 911 ce păzeau și s-au făcut ca morți.
+4. Și de frica lui s-au cutremurat cei ce păzeau și s-au făcut ca morți.
 
 5. Iar îngerul, răspunzând, a zis femeilor: Nu vă temeți, că știu că pe lisus cel răstignit Îl căutați.
 
