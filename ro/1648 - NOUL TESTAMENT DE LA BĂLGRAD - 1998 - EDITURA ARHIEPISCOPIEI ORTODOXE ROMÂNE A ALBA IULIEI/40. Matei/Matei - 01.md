@@ -1,5 +1,5 @@
 # DE LA MATTEIU SFÎNTA EVANGHELIE - 1
-<src/p119.jpg>
+[](src/p119.jpg)
 <!-- CAP. 1 Neamul și nașterea a lui Iisus Hristos carele iaste Mesia făgăduit izbăvitor părinților -->
 
 1. Cartea de neamul lui Iisus Hristos, fiiul lui David, fiul lui Avraam.
@@ -21,7 +21,7 @@
 9. Oziia născu pre Ioatam, iară Ioatam născu pre Ahaz, iară Ahaz născu pre Ezechiia.
 
 10. Ezechiia născu pre Manasia, iară Manasiia născu pre Amon.
-<src/p120.jpg>
+[](src/p120.jpg)
 11. Amon născu pre Iosian, iară Iosian* născu pre Ehonian și pre frații lui, în mutarea în Vavilon.
 
 12. Iară după mutarea în Vavilon, Ehonia născu pre Salatiil, iară Salatiil născu pre Zorovavel.
