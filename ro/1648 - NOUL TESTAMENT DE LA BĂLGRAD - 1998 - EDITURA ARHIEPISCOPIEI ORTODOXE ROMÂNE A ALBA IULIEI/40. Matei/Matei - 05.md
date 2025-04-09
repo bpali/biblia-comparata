@@ -69,3 +69,31 @@
 33. Iară auzit-ați cum fu zis celor de demult: „Să nu giuri strîmb, ce-ți împle Domnului giurămîntul tău.“
 
 34. Dară Eu zic,voao, nu vă giurareți neci decît, neci pre ceriu, că-i scaunul lui Dumnedzeu,
+
+35. Neci pre pămînt, că-i razăm picioarelor Lui, neci pre Ierosalim, că iaste cetatea a marelui împărat.
+
+36. Neci pre capul tău să te giuri, că nu poți nece un păr albu sau negru să faci.
+
+37. Ce să fie cuvîntul vostru, ce-i așa, așa, ce nu-i, nu; iară ce e mai mult de aceastea, de la nepriitoriul iaste.
+
+38. Auzit-ați că fu zis: „Ochiuderept ochiu și dinte pentru dinte“.
+
+39. Iară Eu zic voao nu vă protivireți răului cu rău, ce să te-are lovi cineva preste fața obrazului de-a dereapta, întoarce lui și ceaialaltă.
+
+40. Și cine va vrea să să pîrască cu tine și veșmîntul tău să ia, lasă și cel desupra.
+
+41. Și să te-are sili cineva o milă de loc, pasă cu el doao.
+
+42. Cine ceare de la tine dă-i, și cine ce va să să împromuteaze de la tine, nu te întoarce.
+
+43. Auzit-ați că fu zis să iubești pre priiatinul tău și să urăști pre pizmașul tău.
+
+44. Iară Eu zic voao: Iubiți prepizmașiivoștri, bine ziceți celora ce vă blastămă, bine faceți celora ce vă urăsc pre voi și vă rugați pentru cei ce vă năpăstuesc pre voi și vă gonesc.
+
+45. Ca să fiți fii Tatălui vostru Cela ce iaste în ceriuri că face să răsară soarele Său spre buni și spre răi și ploao spre derepți și nederepți.
+
+46. Că de veți iubi pre cei ce vă iubesc pre voi, ce plată veți avea? Au nu și publicanii fac aceaia?
+
+47. Și de veți cuprinde cu dragoste pre frații voștri numai, ce 8' veți face mai mult? Au nu și publicanii fac așa?
+
+48. Derept aceaia fiti voi desăvîrșit, cum Tatăl vostru den ceriu desăvîrșit iaste.
