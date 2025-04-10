@@ -45,3 +45,27 @@
 21. Iară altul den ucenicii Lui zise Lui: Doamne, lasă-mă mainte să mărg să îngrop pre tată-mieu.
 
 22. Iară Iisus zise lui: Vino după mine și lasă pre morți să-i îngroape morții lor.
+
+23. Și întrînd El în corabie, mearsără după El ucenicii Lui.
+
+24. Și iaca vivor mare fu în mare, așia cît să mai acoperiia corabiia de valuri, iară El dormiia.
+
+25. Și să apropiiară de El ucenicii Lui, deșteptară pre EI, zicînd: Doamne, mîntuiaște-ne, că perim.
+
+26. Și zise lor Iisus: Ce sînteți spăimați, o, puțin credincioși? Atuncea Să sculă de certă vînturele și marea și fu liniște mare.
+
+27. Iară oamenii să mirară zicînd: Cine iaste Acesta? că și vînturile și marea ascultă pre El?
+
+28. Și dacă veni Iisus în ceaia parte în ținutul gherghesineanilor, tîmpinară pre El doi îndrăciți, eșind dentru mormente, foarte răi, cît nu putea nime treace pre aceaia cale.
+
+29. Și iată strigară grăind: Ce e noao și Ție, Iisuse, Fiiul lui Dumnedzău? Venit-ai acicea mainte de vreame, să ne chinuești pre noi?
+
+30. Iară era departe de ei o turmă mare de porci, de păștea.
+
+31. Iară dracii rugară pre El, grăind: De ne vei scoate pre noi, lasă noao să meargem în turma cea de porci.
+
+32. Și zise lor: Meargeți; iară ei deaca eșiră, mearseră în turma de porci, și iaca săriră toată turma de porci de pre țărmure în mare și muriră în apă.
+
+33. Iară păstorii fugiră și veniră în cetate, spusără de toate și ce fură de cei drăciți.
+
+34. Și iaca tot orașul eși întru tîmpinarea lui Iisus și văzîndu-L pre El, rugară-L ca să iasă din hotarăle lor.
