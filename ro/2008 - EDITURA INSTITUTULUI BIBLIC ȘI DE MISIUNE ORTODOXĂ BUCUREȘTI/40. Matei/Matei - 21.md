@@ -1,4 +1,4 @@
-# SFÂNTA EVANGHELIE DUPĂ MATEI - 20
+# SFÂNTA EVANGHELIE DUPĂ MATEI - 21
 
 <!-- CAP. 21 Intrarea în Ierusalim. Alungarea vânzătorilor din templu. Smochinul neroditor. Pilda lucrătorilor celor răi. -->
 
