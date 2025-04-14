@@ -66,8 +66,54 @@
 
 32. Că săva că iaste mai mic de toate semințele, iară deaca creaște, mai mare-i de toate erbile și să face arbure, cît vin pasările ceriului și încuibează spre ramurele lui.
 
+33. Altă pildă grăi lor: Asămănată iaste Împărățiia ceriurelor aluatului carele ia muiarea de-l acopere în făină de trei măsuri, pînă să dospeaște tot.
 
+34. Aceastea toate grăi Iisus în pilde năroadelor și fără pildă nemică nu grăiia lor.
 
+35. Ca să să împle ce-i zis pre prorocul zicînd: deșchide-vou în pilde rostul mieu și voiu arăta ascunsele de începutul lumii.
 
+36. Atuncea lăsă mulțimea și veni Iisus în casă. Și să apropiară cătră El ucenicii Lui grăind: Spune noao pilda neghinelor ceii holde.
 
+37. Iară el răspunse, zise lor: Cela ce sămănă sămînța bună iaste Fiiul omenesc.
 
+38. Iară agrul iaste lumea; sămînța cea bună, aceștea sînt fii Împărății, iară neghinile sînt fii hiclianului.
+
+39. Iară vrăjmașul ce le sămănă pre iale, iaste diiavolul; secerătura, sfîrșeniia veacului iaste, iară secerătorii, îngerii sînt.
+
+40. Dece cum să adună neghinele și să ard cu foc, așia va fi și sfîrșăniia veacului acestuia.
+
+41. Trimite-va Fiiul omenesc pre îngerii Lui carii vor culeage dentru Împărățiia Lui toate smintealele și pre aceia cari fac strîmbătate.
+
+42. Și-i vor arunca pre ei în cuptoriul de foc, acolo va fi plîns și scrișnirea dinților.
+
+43. Atunci derepții vor străluci ca soarele întru Împărățiia Părintelui Său ; cine are urechi de auzirea să auză. 
+
+44. Iară aseamenea iaste Împărățiia ceriului comoarăi ascunsă în pămînt carea o află omul și o acopere și de bucuriia ei mearge și toate cîte are vinde și cumpără pămîntul acela.
+
+45. Iară aseamenea iaste Împărățiia ceriurelor omului neguțătoriu carele caută mărgăritariure scumpe.
+
+46. Carele deaca află un mărgăritariu de mult preț, mearse de vindu tot ce avea și-l cumpără.
+
+47. Iară aseamenea iaste Împărățiia ceriurelor năvodului aruncat în mare, carele adună de tot fealiul.
+
+48. Carele deaca să împlu, trasără-l la margine și șăzură de aleasără cei buni în vase, iară cei răi lepădară afară.
+
+49. Așia va fi la sfîrșăniia veacului: eși-vor îngeri și vor despărți răii den mijlocul derepților.
+
+50. Și-i vor arunca pre ei în cuptoriul de foc; acolo va fi plîns și scrîșnirea dinților.
+
+51. Zise Iisus lor: Înțeleageți aceastea toate? Grăiră Lui: Înțeleagem, Doamne.
+
+52. Iară El zise lor: Derept aceasta tot cărtulariul știutoriu Împărățiia ceriului asamănă-să omului căsătoriu, carele scoate den comoara sa noao și vechi.
+
+53. Și fu cînd sfîrși Iisus pildele aceasta trecu de acolea.
+
+54. Și veni întru moșiia Sa, învăța pre ei în sinagoga lor, cîtu să mira și grăiia: De unde-i Acestuia această înțelepție și puterile?
+
+55. Au nu e acesta fecioriul cela al rotariului? au nu chiamă pre muma Lui Maria? și frații Lui, Iacov și Iosie și Simeon și Iuda?
+
+56. Și sororile Lui au nu-s toate întru noi? Dară de unde sînt aceastea toate Lui?
+
+57. Și să smintiia în El, iară Iisus zise lor: Nu iaste prorocul fără cinste, ce numai în moșiia și în casa lui.
+
+58. Și nu feace acolo puteri multe, pentru necredința lor.
