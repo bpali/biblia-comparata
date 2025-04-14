@@ -1,6 +1,6 @@
 # SFÂNTA EVANGHELIE DUPĂ MATEI - 27
 
-<!-- CAP. 27 Iisus înaintea lui Pilat. Iuda se spânzură. Iisus și Baraba. Iisus dat spre moarte. Biciuirea, batjocorirea, răstignirea, q moartea, înmormântarea și paza mormântului -->
+<!-- CAP. 27 Iisus înaintea lui Pilat. Iuda se spânzură. Iisus și Baraba. Iisus dat spre moarte. Biciuirea, batjocorirea, răstignirea, moartea, înmormântarea și paza mormântului -->
 
 1. Iar făcându-se dimineață, toți arhiereii și bătrânii poporului au ținut sfat împotriva lui Iisus, ca să-L omoare.
 
