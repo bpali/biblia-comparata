@@ -50,7 +50,9 @@
 
 24. Că se vor scula hristoși mincinoși și proroci mincinoși, și vor da semne mari și minuni, cât să amăgiască de va fi cu putință, și pre cei aleși.
 
-25. Iată mai înainte am spus vouă. 26. Deci de vor zice vouă: iată în pusfie este, să nu ieșiți; iată în cămări, să nu credeți.
+25. Iată mai înainte am spus vouă.
+
+26. Deci de vor zice vouă: iată în pusfie este, să nu ieșiți; iată în cămări, să nu credeți.
 
 27. Că precum iese fulgerul dela răsărit și se arată până la apus, așa va fi și venirea Fiului Omului;
 
