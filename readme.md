@@ -13,9 +13,11 @@ Each chapter is in a sepparate [markdown](https://en.wikipedia.org/wiki/Markdown
  - line 2: source image links
  - line 3: chapter summary
  - line 4+: blank line + verse on a new line
+
 So a chapter with 17 verses will have 3 + 17x2 = 37 lines
 
 Command to count number of lines in files is:
+
 `wc -l *.md`
 
 ---
@@ -35,7 +37,9 @@ Fiecare capitol se gasește într-un fișier de tip [markdown](https://en.wikipe
  - linia 2: legatura la imaginile sursa
  - linia 3: sumarul capitolului
  - linia 4+: linie goala + verset pe linie noua
+
 Deci un capitorl cu 17 versete va avea 3 + 17x2 = 37 linii
 
 Comanda pentru numararea liniilor din fisiere este:
+
 `wc -l *.md`
